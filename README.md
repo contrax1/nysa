@@ -1,0 +1,2 @@
+# nysa
+Canım karım 
